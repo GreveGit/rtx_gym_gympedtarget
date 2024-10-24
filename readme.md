@@ -1,1 +1,0 @@
-# Kjøp gymscriptet jeg lagde denne "add-on" scriptet for her: https://rtx.tebex.io/package/5658662
